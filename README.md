@@ -1,6 +1,8 @@
 # hi my name is stan OR LEAH read this before you interact with me
 i made this for ponytown, but you can use this as a general reference.
 
+![](https://komarev.com/ghpvc/?username=stylecanon&color=lightgray)
+
 i am **stan marsh** irl, id realllyyy appreciate if doubles didnt interact either but ill just hide your skin anyway. ill hide stan skins no matter what, if its just a kin, cosplay etc it makes me. Actually physically sick to see soooo oops
 
 i am not unapprochable! you can talk to me anytime you want (if im in game of course) by sending me a whisper! im usually off tab, so if i dont respond quickly, thats why.
