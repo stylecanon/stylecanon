@@ -13,8 +13,6 @@ you can read my rentry for.. the same information here, but i thought id mention
 
 i dont have a dni, because dnis are lowkey stupid! ill try my best to let you know if i dont like you though. pleaseee dont take it personally it has nothing to do with you.... it probably has something to do with your personality tho
 
-my discord is **stylecanon2** if you want to add me, i will have friend requests closed occassionaly coz like i said im very paranoid.
-
 but ya other than that im nice!! sometimes!! if youre nice to me ill be nice to you! baiiiiiii
 
 
