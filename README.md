@@ -3,6 +3,12 @@ i made this for ponytown, but you can use this as a general reference.
 
 ![](https://komarev.com/ghpvc/?username=stylecanon&color=lightgray)
 
+my special interests are [style](https://shipping.fandom.com/wiki/Style) and [se](https://camp2.rectangle.zone/index.php?title=Yo-chan)[al](https://camp2.rectangle.zone/index.php?title=Tsuki)[eb](https://www.reddit.com/r/seals/comments/vz6v87/more_kroshik_source_%D1%81%D0%BF%D0%B0%D1%81%D0%B5%D0%BD%D0%B8%D0%B5_%D1%82%D1%8E%D0%BB%D0%B5%D0%BD%D0%B5%D0%B9_6992399/)[ri](https://www.reddit.com/r/seals/comments/1hua3ar/niko_is_very_funny_looking/)[ties](https://www.reddit.com/r/seals/comments/1ipkyz8/luntik/)! i also just like seals and south park in general
+YES i watch the show NO stan and kyle are not the only south park characters im aware of
+
+other things i like are needy girl overdose, digital horror, jirai kei, j-fashion in general, and nintendo consoles.
+oh also i like dandys world i guess i almost never play anymore PLEASEE let me be exempt from your ''dw fans dni'' PLEASEEEEEEE
+
 i am **stan marsh** irl, id realllyyy appreciate if doubles didnt interact either but ill just hide your skin anyway. ill hide stan skins no matter what, if its just a kin, cosplay etc it makes me. Actually physically sick to see soooo oops
 
 i am not unapprochable! you can talk to me anytime you want (if im in game of course) by sending me a whisper! im usually off tab, so if i dont respond quickly, thats why.
