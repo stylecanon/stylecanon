@@ -10,6 +10,7 @@ other things i like are needy girl overdose, digital horror, jirai kei, j-fashio
 oh also i like dandys world i guess i almost never play anymore PLEASEE let me be exempt from your ''dw fans dni'' PLEASEEEEEEE
 
 i am **stan marsh** *irl, id realllyyy appreciate if doubles didnt interact either but ill just hide your skin anyway. ill hide stan skins no matter what, if its just a kin, cosplay etc it makes me. Actually physically sick to see soooo oops
+
 *you are not obligated to feed into my delusions but PLSSS PLS dont reality check me either both are equally as Harmful to me Telling me ''Youre not stan marsh weirdo'' is just going to make me more defensive about it 🩷 Thanks
 
 i am not unapprochable! you can talk to me anytime you want (if im in game of course) by sending me a whisper! im usually off tab, so if i dont respond quickly, thats why.
