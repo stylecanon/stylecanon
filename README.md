@@ -1,7 +1,6 @@
 # hi my name is stan OR LEAH read this before you interact with me
-i made this for ponytown, but you can use this as a general reference.
 
-![](https://komarev.com/ghpvc/?username=stylecanon&color=lightgray)
+![](https://komarev.com/ghpvc/?username=stylecanon&color=lightgray&style=for-the-badge&label=viewer+count+♡&abbreviated=true)
 
 my special interests are [style](https://shipping.fandom.com/wiki/Style) and [se](https://camp2.rectangle.zone/index.php?title=Yo-chan)[al](https://camp2.rectangle.zone/index.php?title=Tsuki)[eb](https://www.reddit.com/r/seals/comments/vz6v87/more_kroshik_source_%D1%81%D0%BF%D0%B0%D1%81%D0%B5%D0%BD%D0%B8%D0%B5_%D1%82%D1%8E%D0%BB%D0%B5%D0%BD%D0%B5%D0%B9_6992399/)[ri](https://www.reddit.com/r/seals/comments/1hua3ar/niko_is_very_funny_looking/)[ties](https://www.reddit.com/r/seals/comments/1ipkyz8/luntik/)! i also just like seals and south park in general
 YES i watch the show NO stan and kyle are not the only south park characters im aware of
@@ -17,9 +16,7 @@ i am not unapprochable! you can talk to me anytime you want (if im in game of co
 
 keep in mind i am veerryy very **sensitive and paranoid** most of the time, be careful with how you word things around me because i will most likely take it as you being mean to me / you hating me. i also have autism if it wasnt obvious I FORGOT to mention this while i was writing
 
-you can read my rentry for.. the same information here, but i thought id mention it anyway. its on this profile. Somwhere.
-
-i dont have a dni, because dnis are lowkey stupid! ill try my best to let you know if i dont like you though. pleaseee dont take it personally it has nothing to do with you.... it probably has something to do with your personality tho
+No dni except for like. umm if youre anti irl/d/a .. hazbin hotel/helluva boss fans, or if youre anti style/think you like style more than me (sorry)💔
 
 but ya other than that im nice!! sometimes!! if youre nice to me ill be nice to you! baiiiiiii
 
