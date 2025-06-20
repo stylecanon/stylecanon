@@ -1,6 +1,6 @@
 # hi my name is stan OR LEAH read this before you interact with me
 
-![](https://komarev.com/ghpvc/?username=stylecanon&color=lightgray&style=for-the-badge&label=viewer+count+♡&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=stylecanon&color=c52c21&style=for-the-badge&label=viewer+count+♡&abbreviated=true)
 
 my special interests are [style](https://shipping.fandom.com/wiki/Style) and [se](https://camp2.rectangle.zone/index.php?title=Yo-chan)[al](https://camp2.rectangle.zone/index.php?title=Tsuki)[eb](https://www.reddit.com/r/seals/comments/vz6v87/more_kroshik_source_%D1%81%D0%BF%D0%B0%D1%81%D0%B5%D0%BD%D0%B8%D0%B5_%D1%82%D1%8E%D0%BB%D0%B5%D0%BD%D0%B5%D0%B9_6992399/)[ri](https://www.reddit.com/r/seals/comments/1hua3ar/niko_is_very_funny_looking/)[ties](https://www.reddit.com/r/seals/comments/1ipkyz8/luntik/)! i also just like seals and south park in general
 YES i watch the show NO stan and kyle are not the only south park characters im aware of
