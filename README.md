@@ -24,4 +24,4 @@ i dont have a dni, because dnis are lowkey stupid! ill try my best to let you kn
 but ya other than that im nice!! sometimes!! if youre nice to me ill be nice to you! baiiiiiii
 
 
-![dancing-stan-marsh](https://github.com/user-attachments/assets/4da7cb42-143b-4263-be21-72e66162ed87)
+![dancing-stan-marsh](https://github.com/user-attachments/assets/4da7cb42-143b-4263-be21-72e66162ed87) ![niko destruction](https://files.catbox.moe/rfbrbn.gif) ![funky luntik](https://files.catbox.moe/fjiwj4.gif) ![sbf](https://files.catbox.moe/z1mm6r.gif)
