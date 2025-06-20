@@ -10,13 +10,13 @@ oh also i like dandys world i guess i almost never play anymore PLEASEE let me b
 
 i am **stan marsh** *irl, id realllyyy appreciate if doubles didnt interact either but ill just hide your skin anyway. ill hide stan skins no matter what, if its just a kin, cosplay etc it makes me. Actually physically sick to see soooo oops
 
-*you are not obligated to feed into my delusions but PLSSS PLS dont reality check me either both are equally as Harmful to me Telling me ''Youre not stan marsh weirdo'' is just going to make me more defensive about it 🩷 Thanks
+*you are not obligated to feed into my delusions but PLSSS PLS dont reality check me either both are equally as Harmful to me Telling me ''Youre not stan marsh weirdo'' is just going to make me more defensive about it . Thanks
 
 i am not unapprochable! you can talk to me anytime you want (if im in game of course) by sending me a whisper! im usually off tab, so if i dont respond quickly, thats why.
 
 keep in mind i am veerryy very **sensitive and paranoid** most of the time, be careful with how you word things around me because i will most likely take it as you being mean to me / you hating me. i also have autism if it wasnt obvious I FORGOT to mention this while i was writing
 
-No dni except for like. umm if youre anti irl/d/a .. hazbin hotel/helluva boss fans, or if youre anti style/think you like style more than me (sorry)💔
+No dni except for like. umm if youre anti irl/d/a .. hazbin hotel/helluva boss fans, or if youre anti style/think you like style more than me (sorry)
 
 but ya other than that im nice!! sometimes!! if youre nice to me ill be nice to you! baiiiiiii
 
