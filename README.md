@@ -1,24 +1,22 @@
-# hi my name is stan OR LEAH read this before you interact with me
-
 ![](https://komarev.com/ghpvc/?username=stylecanon&color=c52c21&style=for-the-badge&label=viewer+count+♡&abbreviated=true)
+### ♡ BASIC STUFF NO ONE CARES ABOUT
+hi! you can call me **stan** or **leah** , i dont rlly care which one you use lolz     
+my special interests are [style](https://shipping.fandom.com/wiki/Style) (stan x kyle) and seals! i also like sp, ngo/nso, jirai kei n a lot more    
+i rlly love [niko](https://www.youtube.com/watch?v=WssSkWNxCs8), [yo-chan](https://www.youtube.com/watch?v=Qp_mkizteHg), [katsunori](https://www.youtube.com/watch?v=u7GA2lG1l6E), [tsuki](https://www.youtube.com/watch?v=L_Q0zgzdWVU), [kroshik](https://www.youtube.com/watch?v=HhURjINKVDM), [kyoro](https://www.youtube.com/watch?v=bDVCardHbb4) and other sealebrities!
 
-my special interests are [style](https://shipping.fandom.com/wiki/Style) and [se](https://camp2.rectangle.zone/index.php?title=Yo-chan)[al](https://camp2.rectangle.zone/index.php?title=Tsuki)[eb](https://www.reddit.com/r/seals/comments/vz6v87/more_kroshik_source_%D1%81%D0%BF%D0%B0%D1%81%D0%B5%D0%BD%D0%B8%D0%B5_%D1%82%D1%8E%D0%BB%D0%B5%D0%BD%D0%B5%D0%B9_6992399/)[ri](https://www.reddit.com/r/seals/comments/1hua3ar/niko_is_very_funny_looking/)[ties](https://www.reddit.com/r/seals/comments/1ipkyz8/luntik/)! i also just like seals and south park in general
-YES i watch the show NO stan and kyle are not the only south park characters im aware of
+### ♡ BEFORE U INTERACT!!!!!!!!!!!!!
+i have **autism**, generally verryyy sensitive and paranoid a lot of the time, and tend to jump to conclusions about things  
+be careful with how u word things because i will likely assume that you dont like me and/or are being mean to me .. srry  
+ALSO very frequent mood swings and breakdowns Who would have guessed i wouldnt! ding ding ding!!! wow
 
-other things i like are needy girl overdose, digital horror, jirai kei, j-fashion in general, and nintendo consoles.
-oh also i like dandys world i guess i almost never play anymore PLEASEE let me be exempt from your ''dw fans dni'' PLEASEEEEEEE
+### ♡ IRL/DELUSIONAL ATTACHMENT SECTION
+this is not me giving you an ''irls'' list this is literally just me telling you that im stan marsh from south park irl  
+i will immediately hide stan skins upon seeing them sorry. usually its not a big deal but ive had panic attacks over it before Um...  
+least chronically online sp fan... BLOCK ME IF THIS MAKES YOU UNCOMFORTABLE OR WHATEVER. LITERALLY INTERNET 101
 
-i am **stan marsh** *irl, id realllyyy appreciate if doubles didnt interact either but ill just hide your skin anyway. ill hide stan skins no matter what, if its just a kin, cosplay etc it makes me. Actually physically sick to see soooo oops
+### ♡ DO NOT INTERACT!!!!!!!!!!!!!
+Ok to Be Honest i dont exactly. have a dni except for 3 things maybe which are  
+anti style/think you like style more than me (sorry), hazbin hotel/helluva boss fans  
+AND YOU GUESSED IT! STAN DOUBLES! STAN KINNIES! DING DING DING ok ill stop;-;
 
-*you are not obligated to feed into my delusions but PLSSS PLS dont reality check me either both are equally as Harmful to me Telling me ''Youre not stan marsh weirdo'' is just going to make me more defensive about it . Thanks
-
-i am not unapprochable! you can talk to me anytime you want (if im in game of course) by sending me a whisper! im usually off tab, so if i dont respond quickly, thats why.
-
-keep in mind i am veerryy very **sensitive and paranoid** most of the time, be careful with how you word things around me because i will most likely take it as you being mean to me / you hating me. i also have autism if it wasnt obvious I FORGOT to mention this while i was writing
-
-No dni except for like. umm if youre anti irl/d/a .. hazbin hotel/helluva boss fans, or if youre anti style/think you like style more than me (sorry)
-
-but ya other than that im nice!! sometimes!! if youre nice to me ill be nice to you! baiiiiiii
-
-
-![dancing-stan-marsh](https://github.com/user-attachments/assets/4da7cb42-143b-4263-be21-72e66162ed87) ![niko destruction](https://files.catbox.moe/rfbrbn.gif) ![funky luntik](https://files.catbox.moe/fjiwj4.gif)
+![Elephant Green Screen](https://media1.tenor.com/m/C9dtaW-eWg4AAAAd/there%27s-so-much-green-screen-elephant.gif)
