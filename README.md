@@ -10,7 +10,7 @@ be careful with how u word things because i will likely assume that you dont lik
 ALSO very frequent mood swings and breakdowns Who would have guessed i wouldnt! ding ding ding!!! wow
 
 ### ♡ IRL/DELUSIONAL ATTACHMENT SECTION
-this is not me giving you an ''irls'' list this is literally just me telling you that im stan marsh from south park irl  
+this is not me giving you an ''irls'' list this is literally just me telling you that im stan marsh from south park [irl](https://irlsexplained.carrd.co/)  
 i will immediately hide stan skins upon seeing them sorry. usually its not a big deal but ive had panic attacks over it before Um...  
 least chronically online sp fan... BLOCK ME IF THIS MAKES YOU UNCOMFORTABLE OR WHATEVER. LITERALLY INTERNET 101
 
