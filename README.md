@@ -2,7 +2,8 @@
 ### ♡ BASIC STUFF NO ONE CARES ABOUT
 hi! you can call me **stan** or **leah** , i dont rlly care which one you use lolz     
 my special interests are [style](https://shipping.fandom.com/wiki/Style) (stan x kyle) and seals! i also like sp, ngo/nso, jirai kei n a lot more    
-i rlly love [niko](https://www.youtube.com/watch?v=WssSkWNxCs8), [yo-chan](https://www.youtube.com/watch?v=Qp_mkizteHg), [katsunori](https://www.youtube.com/watch?v=u7GA2lG1l6E), [tsuki](https://www.youtube.com/watch?v=L_Q0zgzdWVU), [kroshik](https://www.youtube.com/watch?v=HhURjINKVDM), [kyoro](https://www.youtube.com/watch?v=bDVCardHbb4) and other sealebrities!
+i rlly love [niko](https://www.youtube.com/watch?v=WssSkWNxCs8), [yo-chan](https://www.youtube.com/watch?v=Qp_mkizteHg), [katsunori](https://www.youtube.com/watch?v=u7GA2lG1l6E), [tsuki](https://www.youtube.com/watch?v=L_Q0zgzdWVU), [kroshik](https://www.youtube.com/watch?v=HhURjINKVDM), [kyoro](https://www.youtube.com/watch?v=bDVCardHbb4) and other sealebrities!  
+also im 13 I was Born in 2012 if youre like. An adult i dont really care if you interact just dont be weird OK? ok
 
 ### ♡ BEFORE U INTERACT!!!!!!!!!!!!!
 i have **autism**, generally verryyy sensitive and paranoid a lot of the time, and tend to jump to conclusions about things  
