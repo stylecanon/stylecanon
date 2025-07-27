@@ -21,8 +21,3 @@ anti style/think you like style more than me (sorry), hazbin hotel/helluva boss 
 AND YOU GUESSED IT! STAN DOUBLES! STAN KINNIES! DING DING DING ok ill stop;-;
 
 ![Elephant Green Screen](https://media1.tenor.com/m/C9dtaW-eWg4AAAAd/there%27s-so-much-green-screen-elephant.gif)
-
-it has come to my attention that someone is copying my skin on pt in an attempt to ''get back at me'' or some stupid shit like that  
-![](https://files.catbox.moe/hql752.png)  
-there is no way in hell that this is just a coincidence. i know who you are, YOU know who you are, and you know what youre doing.  
-youre a grown adult, stop beefing with a 13 year old. thanks
