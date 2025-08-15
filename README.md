@@ -5,4 +5,4 @@ hi!!!!! read my rentry pls. youll find it on this account somewhere. you have ey
 as for ponytown info;
 ill usually be next to that lamppost in the sp area, and if im not, ill just be with a friend or something  
 i 100% believe i am stan marsh irl, and will hide stan skins upon seeing them. sorry! it just makes me uncomfortable is all  
-if you absolutely need to, you can contact me on [discord](https://discordid.netlify.app/?id=1373352441965314199)  
+if you absolutely need to, you can contact me on [discord](https://discordid.netlify.app/?id=1405005825713373284)  
