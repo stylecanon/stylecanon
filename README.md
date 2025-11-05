@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=stylecanon&color=000000&label=profile+views)
+⠀![](https://komarev.com/ghpvc/?username=stylecanon&color=000000&label=profile+views)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/34ewo9.gif)
 
