@@ -1,8 +1,9 @@
-![](https://komarev.com/ghpvc/?username=stylecanon&color=c52c21&style=for-the-badge&label=viewer+count+♡&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=stylecanon&color=000000&label=profile+views)
 
-hi!!!!! read my rentry pls. youll find it on this account somewhere. you have eyes. you can look for it.  
+![](https://files.catbox.moe/34ewo9.gif)
 
-as for ponytown info;
-ill usually be next to that lamppost in the sp area, and if im not, ill just be with a friend or something  
-i 100% believe i am stan marsh [irl](https://irlsexplained.carrd.co/), and will hide stan skins upon seeing them. sorry! it just makes me uncomfortable is all  
-if you absolutely need to, you can contact me on [discord](https://discordid.netlify.app/?id=1405005825713373284)  
+⠀⠀⠀[ponytown info](https://rentry.co/wipwipwipwipwipwipwipwipwipwipwipwip)⠀⠀[main rentry](https://rentry.co/stylecanon)⠀⠀[discord](https://discordid.netlify.app/?id=1405005825713373284)⠀⠀[atabook (say hi!)](https://stylecanon.atabook.org/)⠀⠀♡
+
+⠀⠀⠀you are not obligated to look through everything here, but i ask
+
+⠀⠀⠀that you at the very least view the pt info page! thank you!! ^_^
