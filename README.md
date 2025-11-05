@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=stylecanon&color=000000&label=profile+views)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/34ewo9.gif)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://files.catbox.moe/34ewo9.gif)
 
 ⠀⠀⠀[ponytown info](https://rentry.co/wipwipwipwipwipwipwipwipwipwipwipwip)⠀⠀[main rentry](https://rentry.co/stylecanon)⠀⠀[discord](https://discordid.netlify.app/?id=1405005825713373284)⠀⠀[atabook (say hi!)](https://stylecanon.atabook.org/)⠀⠀♡
 
