@@ -1,3 +1,5 @@
-[ponytown info](https://rentry.co/leahsptinfo), [main rentry](https://rentry.co/stylecanon)
+hi . Idk wat to put here sory
 
-leah / stan she her ummm. Idk. 
+heres my [ponytown info](https://rentry.co/leahsptinfo), and my [main rentry](https://rentry.co/stylecanon)
+
+
